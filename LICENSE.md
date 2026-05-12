@@ -1,4 +1,4 @@
-# 
+# Enhance your NFT trading with new NFT Floor Sweeper for opensea sniper bot | auto-buy & trailing-stop, the #1 opensea sniper bot. Includes auto-buy and trailing-stop for a faster
 
 
 
